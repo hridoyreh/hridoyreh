@@ -6,4 +6,4 @@ Professionally, I have been working as a successful SEO specialist since 2018 an
 
 Not only that, 
 
-I also personally built and managed 74+ websites.
+I also personally built and managed 76+ websites.
